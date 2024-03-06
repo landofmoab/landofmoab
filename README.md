@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @landofmoab
-- 📫 How to reach me dreamcasting
+- 📫 How to reach me: Dreamcasting. If you don't have the skill than we probably can't be friends.
